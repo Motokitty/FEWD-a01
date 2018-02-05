@@ -22,14 +22,13 @@ Their names are:
 * Thunder "Scoot" Brooks
 
 
-I also love motorcycles. Here are some pictures from the races I went to:
-![me in the grid with Loris Baz](https://imgur.com/eLJM3NH)
+I also love motorcycles. Here is a picture from the race I went to.
+![me in grid with loris baz](http://i.imgur.com/3k24qs3.jpg)
 
 
-![me with Randy Mamola](https://www.instagram.com/p/BaQzDP3HXJa/?taken-by=motokittyoriginal)
 
 
-If you are interested in looking at other photos of me with bikes and my cats, visit my [Instagram](https://www.instagram.com/motokittyoriginal/). 
+If you are interested in other photos of my adventures, motorcycles, and my cats, visit my [Instagram](https://www.instagram.com/motokittyoriginal/). 
 
 
 
